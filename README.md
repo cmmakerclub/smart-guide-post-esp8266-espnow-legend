@@ -1,1 +1,1 @@
-# ESPresso Lite 2.0 + ESPNow
+# Smart Guide Post
